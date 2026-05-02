@@ -18,3 +18,6 @@ Proyecto desarrollado en flutter para la asignatura de desarrollo de aplicacione
 ![alt text](image-4.png) ![alt text](image-5.png)
 ![alt text](image-6.png)
 ![alt text](image-7.png) ![alt text](image-8.png)
+![alt text](20260502_160429.jpg) ![alt text](20260502_154843.jpg) ![alt text](20260502_154829.jpg) !
+![alt text](20260405_151533.jpg)
+![alt text](20260502_154848.jpg)
